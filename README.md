@@ -1,1 +1,1 @@
-Author - Aditya Shanker Srivastava
+Author - Aditya Shanker
